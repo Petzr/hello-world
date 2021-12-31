@@ -8,3 +8,13 @@ And now I have made it this far.
 version 0.1
 version 0.2
 
+version met scherma
+version met schermaversion met schermaversion met scherma
+
+
+version met scherma
+
+sxdfgsdfgds
+
+
+
